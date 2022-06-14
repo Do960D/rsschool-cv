@@ -6,7 +6,7 @@
 - Telegam: <br> @belphegorov
  
 #### I`m 4th category food cooking technologist, IT administrator, guitar\piano\gamepad player.
-#### Enjoying by writing a code .
+#### Enjoying by a code writing.
 
 #### No examples of my code here for now 
 
