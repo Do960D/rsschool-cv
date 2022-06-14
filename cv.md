@@ -3,7 +3,7 @@
 
 - Email: <br> shiparev.ilya@gmail.com
 - Discord: <br> TOPTAKYCOK 
-- Telegam: <br> @belphegorov
+- Telegram: <br> @belphegorov
  
 #### I`m 4th category food cooking technologist, IT administrator, guitar\piano\gamepad player.
 #### Enjoying by a code writing.
